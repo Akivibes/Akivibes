@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Akivibes
+- 👀 I’m interested in discord & roblix
+- 🌱 I’m currently learning alot
+- 💞️ I’m looking to collaborate on nothing tbh
+- 📫 How to reach me, wait don't
